@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @infinite-void
+- 👋 Hi, I’m _003 you can find me here @infinite-void
 - 👀 I’m interested in app devolpment 
 - 🌱 I’m currently learning!!! 
 - 💞️ I’m looking to collaborate on a project to strenghthen relationships.
